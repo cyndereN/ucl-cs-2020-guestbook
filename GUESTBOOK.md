@@ -34,3 +34,6 @@ Hey check out my app if you have Android! [Trickshott](https://play.google.com/s
 
 ### Suhail Merali
 [idk what to put here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+### Ce Cao
+Hi all nice to meet you.
